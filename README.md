@@ -8,4 +8,4 @@ Nama Kelompok :
 7. Helarius Teki (135610121)
 8. Yogo Pambudi (135610139)
 9. Vendo Sembiring (135610151)
-10. Obet Edom Martinus (135610)
+10. Obet Edom Martinus (135610087)
